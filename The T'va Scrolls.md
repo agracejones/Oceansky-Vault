@@ -1,1 +1,5 @@
-Since the [[Division of the World]], the people of the [[T'va Islands]] have been the most rigorous in keeping meticulous records of their history. While most other islands let the story of the Oceansky fall into myth, a woman named [[Ceyi of T'va]] rose up as the first [[Storykeeper]] only two years after the Division, devoting her life to seeking out information and ensuring that future generations would continue her work. Ceyi saw that oral tradition could only be reliable up to a certain point and developed her own form of writing, creating the first T'va Scrolls. 
+Since the [[Division of the World]], the people of the [[T'va Islands]] have been the most rigorous in keeping meticulous records of their history. While most other islands let the story of the Oceansky fall into myth, a woman named [[Ceyi of T'va]] rose up as the first [[Storykeeper]] only two years after the Division, devoting her life to seeking out information and ensuring that future generations would continue her work. Ceyi saw that oral tradition could only be reliable up to a certain point and developed her own form of writing, creating the first T'va Scrolls. It is widely believed that these scrolls were the earliest appearance of an organized, universal system of written language.
+
+# Transcriptions
+
+## Scroll One

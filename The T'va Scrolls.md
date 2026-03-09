@@ -1,0 +1,1 @@
+Since the [[Division of the World]], the people of the [[T'va Islands]] have been the most rigorous in keeping meticulous records of their history. While most other islands let the story of the Oceansky fall into myth

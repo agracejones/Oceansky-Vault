@@ -3,3 +3,5 @@ Since the [[Division of the World]], the people of the [[T'va Islands]] have bee
 # Transcriptions
 
 ## Scroll One
+> The words of [[Ceyi of T'va]], the first [[Storykeeper]], recorded here for future generations to ponder and not forget. Let there in each generation rise up new Storykeepers who dedicate their lives to the preserving of our history. Let them study the old stories, speak with those who witness great events, and record the words of their time so that those who take their place may continue the tradition.
+> Hear now the story of the [[Division of the World]], for a day may come when children are born who have never known of a world with one great land and a never-setting sun. 

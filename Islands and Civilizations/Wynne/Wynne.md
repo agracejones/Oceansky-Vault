@@ -1,0 +1,1 @@
+Wynne is a large island/continent in the [[Oceansky]]. The landmass consists of thirteen independent nations. In ([[context needed]]: meta time system), the [[Dancing Isles]] drifted near enough to Wynne to be reached by boat. Within ([[context needed]]: rate of dri)
